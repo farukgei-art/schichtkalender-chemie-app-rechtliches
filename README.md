@@ -1,4 +1,4 @@
-# Schichtkalender Chemie – Rechtliches
+# Schichtkalender Chemie: Rechtliches
 
 Datenschutzerklärung, Impressum und Support-Kontakt für die App Schichtkalender Chemie.
 
